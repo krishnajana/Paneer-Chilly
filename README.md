@@ -1,1 +1,1 @@
-# Paneer-Chilly
+My Recipe is PaneerChilly. In restaurants, it's mainly used as starters

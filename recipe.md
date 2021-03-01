@@ -1,0 +1,1 @@
+First take the paneer then pour some little masala on it then put it in the frying pan. When it will be ready put it in the plate then put some fried chilly and onion in it. Congratulations!! Dish is ready.
